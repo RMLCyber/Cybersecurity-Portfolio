@@ -4,6 +4,8 @@ I communicate effectively, both in writing and orally, and I am determined to de
 
 
 
+
+
 Déclaration professionnelle :
 
 Je communique parfaitement, que ce soit à l’écrit ou à l’oral, et je suis déterminé à développer mes compétences en programmation, en systèmes d’exploitation, et dans la gestion des outils de sécurité. Ce qui m’intéresse le plus dans le domaine de la cybersécurité, c’est la résolution des défis, la protection des données et l’innovation. Mes valeurs de protection des personnes et des organisations, ainsi que le respect des lois et des réglementations, me motivent à contribuer activement à la réalisation des objectifs de sécurité de diverses organisations. Mes points forts, mes valeurs et mes intérêts m’aideront à répondre efficacement aux incidents de sécurité, à résoudre des défis complexes, à prévenir les menaces et à concevoir des logiciels robustes.
